@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **boranabanita15@gmail.com**
 
-- ⚡ Fun fact **fun fact about me is I am goofy**
+- ⚡ Fun fact **about me is I am goofy**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
